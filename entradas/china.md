@@ -9,3 +9,9 @@ La capital de la República Popular China, es una de las ciudades más antiguas 
 - Gran Muralla China en Mutianyu
 - Palacio de verano (Yiheyguan)
 - Templo del Cielo
+
+
+​
+## Foto
+![china](https://i.ytimg.com/vi/ymGqAiqs8oQ/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLC5BYdffm83HxOAneJXYWVn8_ZjqQ)
+​
