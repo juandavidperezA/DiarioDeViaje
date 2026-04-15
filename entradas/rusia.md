@@ -7,5 +7,8 @@
  - GUM
  - kremlin
  - plaza roja
+---
+ ![moscu](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTMU9Of97RFidbFDaqL6NIi84-6npWiBLx87A&s)
 
- 
+---
+
