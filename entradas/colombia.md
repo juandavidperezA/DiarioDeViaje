@@ -13,3 +13,8 @@
 - zona T
 
 ---
+
+![bogota](https://t3.ftcdn.net/jpg/05/25/60/40/360_F_525604089_jD3RQqQefPDtw1Mu3Ou4EJLsUMhbvkhJ.jpg)
+
+
+​
