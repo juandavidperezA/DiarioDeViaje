@@ -6,3 +6,6 @@ Ciudad del amor, conocida por su icónica Torre Eiffel.
 ## Recomendación
 Visitar el Museo del Louvre.
 torre Eiffel
+
+![paris](https://estoesfrancia.com/wp-content/uploads/2024/04/subir-torre-eiffel.jpg)
+
